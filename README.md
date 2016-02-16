@@ -6,3 +6,9 @@ Actually I have no idea what I'm doing...
 
 Currently studying the Advanced Diploma in Games Development specializing in Games Programming. Trying to grab me some skills in C#, C++, Unity, Unreal and some other cool stuff...
 
+Twitter: https://twitter.com/inseushu
+
+Soundcloud: https://soundcloud.com/inseushu
+
+Youtube: https://www.youtube.com/channel/UCgJlhJKEbAzEGNGQ3-xUYHA
+
