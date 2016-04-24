@@ -4,8 +4,6 @@
 
 I have no clue what I'm doing...
 
-Currently studying the Advanced Diploma in Games Development specializing in Games Programming.
-
 Twitter: https://twitter.com/inseushu
 
 Soundcloud: https://soundcloud.com/inseushu
